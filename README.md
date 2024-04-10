@@ -2,6 +2,7 @@
 -----futuristic interfaces are interfaces you dont have to put up  with..
 >>>they are purely streamlined. by 1 click or a brain interface....
 
+---timeless because it is purely streamlined that even you future great great great great great grand daugther will use it.
 
 
 
